@@ -2,7 +2,7 @@
 Our mission for creating this article is to spread awareness regarding the impact of tree breeding in our society.Tree breeding programs are designed to develop genetically improved varieties used for reforestation and afforestation.
 
 **Tree Breeding and the Problem of the Environment**
-The discovery of genetic gain to the forest grower is one of the most important drivers for commercial tree breeding programs (e.g., [15]). 
+The discovery of genetic gain to the forest grower is one of the most important drivers for commercial tree breeding programs and the major issue in the environmental survey are the accuracy of  measurement etc
 
 **Conclusions**
 Tree breeding programs develop genetically improved varieties for forestation through repeated cycles of activities such as selection, breeding, and genetic testing.  
